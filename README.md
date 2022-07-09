@@ -1,3 +1,3 @@
 # FTB Auto Plus
-https://sarg.lt/index.php?/topic/423886-ftb-darbo-dienos-ataskaita/
+[Screenshot](https://part.lt/img/05c108e59a95653ce257aabffc916406236.JPG)
 
